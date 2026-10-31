@@ -1,4 +1,4 @@
-# Hi, I'm Dewadhi Tripathi 👋
+# Hi, I'm dewa-pro 👋
 
 ### Robotics | Innovation | Technology
 
